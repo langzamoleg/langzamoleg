@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @langzamoleg
 - 👀 I’m interested in binge drinking
-- 🌱 I’m currently learning base math
+- 🌱 I’m currently learning basic math
 - 💞️ I’m looking to collaborate on pornhub
 - 📫 How to reach me: https://langzamoleg.ru
 
